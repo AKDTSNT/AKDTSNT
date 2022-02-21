@@ -6,3 +6,8 @@ These qualifications along with my managerial experiences will make me an immedi
 
 - ✍ I have
 Completed a Post Graduation in Data Science and Business Analytics.
+
+
+  
+
+ 
