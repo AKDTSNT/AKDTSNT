@@ -8,6 +8,8 @@ These qualifications along with my managerial experiences will make me an immedi
 Completed a Post Graduation in Data Science and Business Analytics.
 
 
+- 👨‍💻
+![image](https://user-images.githubusercontent.com/88977946/155065329-9eec2275-2468-4ce5-beaf-c9487772599f.png)
   
 
  
