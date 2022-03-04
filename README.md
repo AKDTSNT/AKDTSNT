@@ -10,7 +10,8 @@ These qualifications along with my managerial experiences will make me an immedi
 </p>
 
 a) PGPDSBA
-![image](https://user-images.githubusercontent.com/88977946/156702875-81299985-7e31-464d-a375-31f91a94296f.png)
+
+![image](https://user-images.githubusercontent.com/88977946/156704119-e9001a13-ede6-4f25-875a-06f012207c07.png)
 
 <h2>b) MBA</h2>  
 
