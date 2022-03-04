@@ -5,12 +5,15 @@ Possesses a Master’s in Business Administration and Post Graduate Diploma in D
 These qualifications along with my managerial experiences will make me an immediate contributor at your company.
 
 - ![image](https://user-images.githubusercontent.com/88977946/156689620-a093fca5-f4a6-438a-b6cf-4cf8c57191bf.png)
+<p align="center">
+  <img src="https://user-images.githubusercontent.com/88977946/156689559-e49be218-59ef-4ee1-91c1-b0cb702ec33d.png">
+</p>
 
-![image](https://user-images.githubusercontent.com/88977946/156689559-e49be218-59ef-4ee1-91c1-b0cb702ec33d.png)
+a) PGPDSBA
+![image](https://user-images.githubusercontent.com/88977946/156702875-81299985-7e31-464d-a375-31f91a94296f.png)
 
+<h2>b) MBA</h2>  
 
 - 👨‍💻 Softwares
 ![image](https://user-images.githubusercontent.com/88977946/155065329-9eec2275-2468-4ce5-beaf-c9487772599f.png)
   
-
- 
