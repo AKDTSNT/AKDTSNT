@@ -4,11 +4,12 @@ Looking to apply my ample experience and skills in predictive analysis towards t
 Possesses a Master’s in Business Administration and Post Graduate Diploma in Data Science and Business Analytics from premier institutions. 
 These qualifications along with my managerial experiences will make me an immediate contributor at your company.
 
-- ✍ I have
-Completed a Post Graduation in Data Science and Business Analytics.
+- ![image](https://user-images.githubusercontent.com/88977946/156689620-a093fca5-f4a6-438a-b6cf-4cf8c57191bf.png)
+
+![image](https://user-images.githubusercontent.com/88977946/156689559-e49be218-59ef-4ee1-91c1-b0cb702ec33d.png)
 
 
-- 👨‍💻
+- 👨‍💻 Softwares
 ![image](https://user-images.githubusercontent.com/88977946/155065329-9eec2275-2468-4ce5-beaf-c9487772599f.png)
   
 
