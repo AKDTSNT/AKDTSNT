@@ -12,10 +12,10 @@
 ![image](https://user-images.githubusercontent.com/88977946/156704119-e9001a13-ede6-4f25-875a-06f012207c07.png)
 
 <h2>b) Master of Business Administration (MBA)</h2>  
-![image](https://user-images.githubusercontent.com/88977946/177027992-d3ad6f1f-864f-4b58-bcf2-586bdc0ab111.png)
+
+![image](https://user-images.githubusercontent.com/88977946/177028033-e35e316c-033b-4a9b-b8a9-4656b2e7615c.png)
 
 <h2>c) Bachelor of Business Administration (BBA)</h2>  
 
-- 👨‍💻 Softwares
-![image](https://user-images.githubusercontent.com/88977946/155065329-9eec2275-2468-4ce5-beaf-c9487772599f.png)
+
   
